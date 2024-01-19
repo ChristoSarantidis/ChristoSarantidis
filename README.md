@@ -2,7 +2,7 @@ Hello!!! Welcome to my profile!!!😁😁😁😁😁😁
 
 Christos Sarantidis
 
-Undergraduate Student, Department of Informatics Ionian University, Student Number of code: inf2022182  💻💻💻
+Undergraduate Student, Department of Informatics Ionian University  💻💻💻
 
 Sports: Cycling🚲🚵‍♂️, Badminton🏸, Fencing 🤺⚔🛡
 
