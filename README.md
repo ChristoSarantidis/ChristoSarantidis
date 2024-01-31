@@ -1,6 +1,6 @@
 Hello!!! Welcome to my profile!!!😁😁😁😁😁😁
 
-Christos Sarantidis
+Christos Sarantidis,
 
 Undergraduate Student, Department of Informatics Ionian University  💻💻💻
 
