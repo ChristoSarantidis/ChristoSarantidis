@@ -4,10 +4,10 @@ Christos Sarantidis,
 
 Undergraduate Student, Department of Informatics Ionian University  💻💻💻
 
-Sports: Cycling🚲🚵‍♂️, Badminton🏸, Fencing 🤺⚔🛡
+Vice President, Erasmus Student Network, Ionian University Branch 🌍🔮🌐🔮🌍
 
 Musician in Mantzaros Philarmonic Society in Corfu 📯🎼🎵🥁
 
 Volunteer Firefighter 👨‍🚒🚒🧯
 
-Vice President, Erasmus Student Network, Ionian University Branch 🌍🔮🌐🔮🌍
+Sports: Cycling🚲🚵‍♂️, Badminton🏸, Fencing 🤺⚔🛡
