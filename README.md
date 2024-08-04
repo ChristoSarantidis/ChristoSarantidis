@@ -8,6 +8,6 @@ Sports: Cycling🚲🚵‍♂️, Badminton🏸, Fencing 🤺⚔🛡
 
 Musician in Mantzaros Philarmonic Society in Corfu 📯🎼🎵🥁
 
-Candidate Volunteer Firefighter 👨‍🚒🚒🧯
+Volunteer Firefighter 👨‍🚒🚒🧯
 
-Buddy System Coordinator, Erasmus Student Network, Ionian University Branch 🌍🔮🌐🔮🌍
+Vice President, Erasmus Student Network, Ionian University Branch 🌍🔮🌐🔮🌍
